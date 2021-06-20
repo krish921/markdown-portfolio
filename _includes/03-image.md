@@ -1,1 +1,1 @@
-[text](https://example.com)
+[text](https://krish921.com)
